@@ -1,8 +1,7 @@
 - Hi I'm anonymouse4972 :)
-- High-schooler who eats cheese
 - Coding since I was 4
 - eeeeeeeeeeeeeeeeeeeeeeeeee
-- I make roboblox games and occasionally html stuff
+- I make roblox games and occasionally html stuff
 - currently working on a chat website
 - GG
 
